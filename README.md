@@ -9,8 +9,6 @@
 
 - 📫 How to reach me **omarmakkia5@gmail.com**
 
-- 📄 Know about my experiences CV -> [https://drive.google.com/file/d/1dlkc_vH4QjyAUAQUDlgdT93aELaPguz-/view?usp=sharing](https://drive.google.com/file/d/1dlkc_vH4QjyAUAQUDlgdT93aELaPguz-/view?usp=sharing)
-
 - ⚡ Fun fact **stay away if you're using multibloc provider!😂**
 
 <h3 align="left">Connect with me:</h3>
